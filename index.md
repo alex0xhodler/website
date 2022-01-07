@@ -1,4 +1,4 @@
-## Professional Web3-native Product Consultancy 👋🏼
+## Professional Web3-native Product Consultancy 🧙‍♂️
 
 # Hey there, pioneer 👋🏼
 
