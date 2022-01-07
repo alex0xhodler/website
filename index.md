@@ -1,6 +1,6 @@
 ## Professional Web3-native Product Consultancy 🧙‍♂️
 
-# Hey there, pioneer 👋🏼
+### Hey there, pioneer 👋🏼
 
 Welcome to 0xHodler, a native Web3 all-things-Product consultancy company from Utrecht, The Netherlands. 
 
