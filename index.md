@@ -2,10 +2,7 @@
 
 ### Hey there, pioneer 👋🏼
 
-We are a native Web3 Product agency offering early-stage blockchain start-ups advisory and counselor to succeed in crypto space.
-
-We specialize in Web3, Blockchain, Metaverse, dApps, NFTs, DeFi, GameFi, Play2Earn, DAOs.
-
+We are an all-things-Product agency offering early-stage blockchain start-ups advisory and counselor to succeed in the crypto space.
 
 ### Contact 📧
 
